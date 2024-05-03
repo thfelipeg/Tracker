@@ -6,6 +6,6 @@
 
 <br>
 
-Matheus Mendes Cabral - 10417820@mackenzista.com.br
+Mateus Mendes Cabral - 10417820@mackenzista.com.br
 
 Thiago Felipe Garcia - 10414699@mackenzista.com.br
